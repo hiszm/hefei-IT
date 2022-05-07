@@ -23,13 +23,7 @@
   
 </details>
 
-<details>
-  <summary>想同城交友，欢迎加入社群</summary>
 
-加我的个人微信（szm201918）拉你进微信群组（请备注hefei-IT）：
-
-![](https://s1.ax1x.com/2022/04/28/LOYn6H.jpg)
-</details>
 
 ## 学习工作
 
